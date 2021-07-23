@@ -1,0 +1,5 @@
+## Chapurina Olga Sergeevna
+**1**. Mobile number: 8-927-620-77-07
+**2**. I am just starting my training in IT. I'm interested in learning about front-end development. I have worked for over 7 years in the municipal government. Now I want to change my profession to a more promising, modern and exciting one. IT is a new opportunity and I want to be a part of it. I am carefully studying new materials, I think I can quickly learn everything that is necessary to get my first good job. I like that I can deepen my knowledge throughout my career,  fulfill my potential in collective and individual work, allowing for personal and professional growth.
+**3**. I have a higher education in economics.
+**4**. My level of English is about B1. I studied English at school, university, and some classes with teacher.
